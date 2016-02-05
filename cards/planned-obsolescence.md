@@ -1,0 +1,5 @@
+---
+id: DjdseIKXRJlkifMAVsqoQLQC
+---
+
+# Planned Obsolescence
